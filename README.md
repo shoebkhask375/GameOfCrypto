@@ -1,1 +1,1 @@
-# GameOfAirdrops
+# GameOfCrypto
